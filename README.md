@@ -1,6 +1,6 @@
 # Nageen Chand ‍
 
-*Software Developer* | 🇮🇳 Hamirpur
+*Software Developer* | 🇮🇳 Noida
 
 [archie9211.com](archie9211.com) | nageen523@gmail.com | +91 82193-43522
 
